@@ -1,1 +1,1 @@
-# sekajet web sitemiz yakında aktif olacaktır
+# sekajet web sitemiz yakında aktif olacaktırr
